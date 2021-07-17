@@ -6,6 +6,7 @@
 
 [3. West Harlem - Six to Celebrate](https://github.com/realdatanyc/uptown/blob/main/WestHarlem-SixToCeleb.pdf)
 
+[4. Morningside Heights - Six to Celebrate(https://github.com/realdatanyc/uptown/blob/main/HDC-SixtoCelebGuide-MORNINGSIDE-HEIGHTS-12pg.pdf)
 
 
 
