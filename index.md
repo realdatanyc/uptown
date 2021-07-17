@@ -4,7 +4,7 @@
 
 [2. Elegran Townhouse Buyer's Guide](https://github.com/realdatanyc/uptown/blob/main/Elegran%20Buyers%20Guide%20to%20Townhouses.pdf)
 
-[3. West Harlem - Six to Celebrate(https://github.com/realdatanyc/uptown/blob/main/WestHarlem-SixToCeleb.pdf)
+[3. West Harlem - Six to Celebrate](https://github.com/realdatanyc/uptown/blob/main/WestHarlem-SixToCeleb.pdf)
 
 
 
