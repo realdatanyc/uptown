@@ -10,9 +10,9 @@
 
 [5. Audubon Park - Six to Celebrate](https://github.com/realdatanyc/uptown/blob/main/AudubonPark.pdf)
 
-[6. Apartment Houses of the Metropolis](https://www.google.com/search?tbm=bks&q=apartment+houses+of+the+metropolis)
+[6a. Apartment Houses of  the Metropolis - Google Books](https://www.google.com/books/edition/Apartment_Houses_of_the_Metropolis/u5VAAQAAMAAJ?hl=en&gbpv=1&dq=apartment+houses+of+the+metropolis&printsec=frontcover)
 
-[6. Apartment Houses of  the Metropolis](https://www.google.com/books/edition/Apartment_Houses_of_the_Metropolis/u5VAAQAAMAAJ?hl=en&gbpv=1&dq=apartment+houses+of+the+metropolis&printsec=frontcover)
+[6b. Apartment Houses of the Metropolis - NYPL](https://digitalcollections.nypl.org/collections/apartment-houses-of-the-metropolis#/?tab=about&scroll=20)
 
 
 
