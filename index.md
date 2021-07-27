@@ -12,7 +12,7 @@
 
 [6. Apartment Houses of the Metropolis](https://www.google.com/search?tbm=bks&q=apartment+houses+of+the+metropolis)
 
-[6. Apartment Houses of  the Metropolis](https://refer.wework.com/)
+[6. Apartment Houses of  the Metropolis](https://www.google.com/books/edition/Apartment_Houses_of_the_Metropolis/u5VAAQAAMAAJ?hl=en&gbpv=1&dq=apartment+houses+of+the+metropolis&printsec=frontcover)
 
 
 
