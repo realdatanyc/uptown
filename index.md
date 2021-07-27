@@ -10,6 +10,8 @@
 
 [5. Audubon Park - Six to Celebrate](https://github.com/realdatanyc/uptown/blob/main/AudubonPark.pdf)
 
+[6. Apartment Houses of the Metropolis](https://www.google.com/search?tbm=bks&q=apartment+houses+of+the+metropolis)
+
 
 
 
