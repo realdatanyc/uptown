@@ -23,6 +23,9 @@
 Last updated:  Friday, July 30, 2021\
 Please note:  An asterisk ( * ) denotes currently available for rent
 
+2270 Frederick Douglass Boulevard\
+[8J](https://youtu.be/ZOl1GLaUpgE)
+
 45 Tiemann Place\
 [2H](https://youtu.be/qupsmF_cLhg)
 
