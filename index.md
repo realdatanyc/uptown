@@ -56,6 +56,9 @@ Please note:  An asterisk ( * ) denotes currently available for rent
 304 West 151st Street\
 [22](https://youtu.be/fsPGh7x67aI)
 
+614 West 152nd Street\
+[55](https://youtu.be/lbFsOnuh9zI)
+
 101 Audubon Avenue\
 [62](https://youtu.be/3vSZgdfHsag), [64](https://youtu.be/fFgdlnavcB8), [64 br](https://youtu.be/qhUC17jgKiM)
 
