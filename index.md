@@ -45,7 +45,7 @@ Please note:  An asterisk ( * ) denotes currently available for rent
 [10U](https://youtu.be/Ip3cVuzgNIM)
 
 45 West 132nd Street\
-[12A]https://youtu.be/Bn_bdRIfF4I
+[12A](https://youtu.be/Bn_bdRIfF4I)
 
 2300 Fifth Avenue\
 [10K](https://youtu.be/RKOdkvh2DpI), [15G](https://youtu.be/_7mPk3ppCow)
