@@ -23,6 +23,9 @@
 6 St. Nicholas Terrace\
 [B2](https://youtu.be/bUsOb3kSoS8), [2B](https://youtu.be/hFHJig17vo0), [4A](https://youtu.be/UQRZkFxB-Vg), [4A ba](https://youtu.be/f7hY3aV6-Mc), [4B](https://youtu.be/rWNhN3MITvk)  
 
+1734 Amsterdam Avenue\
+[5N](https://youtu.be/q7QJUFcjKYE)
+
 666 St. Nicholas Avenue\
 [2](https://youtu.be/Fxbl6DehDGc), [2 ms](https://youtu.be/QNuk1leRVl0)
 
