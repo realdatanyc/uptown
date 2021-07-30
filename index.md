@@ -32,6 +32,9 @@ Please note:  An asterisk ( * ) denotes currently available for rent
 1734 Amsterdam Avenue\
 [5N](https://youtu.be/q7QJUFcjKYE)
 
+3333 Broadway\
+[A7J](https://youtu.be/FkGdGNQBSyY)
+
 272 West 139th Street\
 [2B](https://youtu.be/bIhs-qb7jwM), [3F](https://youtu.be/XNF0-b1znxA), [4E](https://youtu.be/eEJIOxlH13o)
 
