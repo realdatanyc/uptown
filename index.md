@@ -20,7 +20,7 @@
 
 ## Buildings
 545 Edgecombe\
-[3B](https://youtu.be/FebAUG-qoWY), [4H],(https://youtu.be/cNsKXli-QRg), [6E](https://youtu.be/jiMhX1-9WPs),[6F](https://youtu.be/1sV2E-qTe-s)
+[3B](https://youtu.be/FebAUG-qoWY),[4H](https://youtu.be/cNsKXli-QRg), [6E](https://youtu.be/jiMhX1-9WPs),[6F](https://youtu.be/1sV2E-qTe-s)
 
 
 
