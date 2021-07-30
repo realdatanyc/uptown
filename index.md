@@ -23,6 +23,9 @@
 Last updated:  Friday, July 30, 2021\
 Please note:  An asterisk ( * ) denotes currently available for rent
 
+45 Tiemann Place\
+[2H](https://youtu.be/qupsmF_cLhg)
+
 6 St. Nicholas Terrace\
 [B2](https://youtu.be/bUsOb3kSoS8), [2B](https://youtu.be/hFHJig17vo0), [4A](https://youtu.be/UQRZkFxB-Vg), [4A ba](https://youtu.be/f7hY3aV6-Mc), [4B](https://youtu.be/rWNhN3MITvk)  
 
