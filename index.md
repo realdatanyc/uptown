@@ -19,7 +19,8 @@
 [7. Pease & Elliman New York East Side Apartment Plans](https://babel.hathitrust.org/cgi/pt?id=mdp.39015026793094&view=thumb&seq=45) 
 
 ## Buildings
-
+545 Edgecombe\
+[3B](https://youtu.be/FebAUG-qoWY), [4H],(https://youtu.be/cNsKXli-QRg), [6E](https://youtu.be/jiMhX1-9WPs),[6F](https://youtu.be/1sV2E-qTe-s)
 
 
 
