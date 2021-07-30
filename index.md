@@ -63,7 +63,7 @@ Please note:  An asterisk ( * ) denotes currently available for rent
 [55](https://youtu.be/lbFsOnuh9zI)
 
 555 West 156th Street\
-[2G](https://youtu.be/xg1HA1E06To)
+[2G](https://youtu.be/xg1HA1E06To), [3I](https://youtu.be/Uy1_OyIzkqw)
 
 101 Audubon Avenue\
 [62](https://youtu.be/3vSZgdfHsag), [64](https://youtu.be/fFgdlnavcB8), [64 br](https://youtu.be/qhUC17jgKiM)
