@@ -24,6 +24,16 @@
 
 [10. Hogwarts in Manhattan (Gargoyles/Grotesques at City College)](https://www.scoutingny.com/hogwarts-in-manhattan-the-1000-gargoyles-grotesques-of-city-college/)
 
+[11. Miskin’s (Amsterdam and 145th st) pre- gut of the interior](https://www.scoutingny.com/want-to-feel-like-youre-in-a-film-noir-step-into-mishkins-drug-store/)
+
+[12. Church of the Intercession – at 155th – part of Trinity Church Cemeter](https://www.scoutingny.com/scouting-a-crypt/)
+
+[13. Royal Tenenbaum’s House](https://www.youtube.com/watch?v=YG9LfXVZJOM)
+
+[14. Moving of Alexander Hamilton’s House](https://www.youtube.com/watch?v=qAeUIscbuVY)
+
+[15. James Bailey House](http://daytoninmanhattan.blogspot.com/2019/05/the-james-bailey-house-10-st-nicholas.html)
+
 ## Buildings
 
 Last updated:  Friday, July 30, 2021\
