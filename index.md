@@ -22,6 +22,8 @@
 
 [9. NY Times - Cantilever Buildings (2014)](https://www.nytimes.com/2014/01/12/realestate/cantilevered-buildings-of-new-york.html)
 
+[10. Hogwarts in Manhattan (Gargoyles/Grotesques at City College)](https://www.scoutingny.com/hogwarts-in-manhattan-the-1000-gargoyles-grotesques-of-city-college/)
+
 ## Buildings
 
 Last updated:  Friday, July 30, 2021\
