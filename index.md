@@ -34,7 +34,7 @@
 
 [15. James Bailey House](http://daytoninmanhattan.blogspot.com/2019/05/the-james-bailey-house-10-st-nicholas.html)
 
-[16. Graham Court](https://www.newamerica.org/education-policy/reports/back-to-basics/)
+[16. Graham Court](https://nymag.com/intelligencer/2020/04/graham-court-apartments-harlem.html)
 
 ## Buildings
 
