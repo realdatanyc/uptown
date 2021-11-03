@@ -36,7 +36,7 @@
 
 [16. Graham Court](https://nymag.com/intelligencer/2020/04/graham-court-apartments-harlem.html)
 
-[17. The Harlem Res](https://www.youtube.com/watch?v=yhIWWcjsTyE)
+[17. The Harlem Rens](https://www.youtube.com/watch?v=yhIWWcjsTyE)
 
 ## Buildings
 
